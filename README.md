@@ -1,1 +1,1 @@
-# Prabhav25.github.io-Invaders
+This game is created in metaverse studio.gometa.io and in order to play this game you have to download the Metaverse - Aurgmented Reality app in your phone and just copy the link (https://mtvrs.io/DarkseagreenEvenXanthareel) or scan the QR code from (https://studio.gometa.io/discover/me/8f0a1915-c82e-435b-8c7a-6ed938b9a7f9).
