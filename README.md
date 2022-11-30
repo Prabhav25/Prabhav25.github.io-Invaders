@@ -1,4 +1,4 @@
-This game is created in (metaverse studio.gometa.io + koji) and in order to play this game you have to download the Metaverse - Aurgmented Reality app in your phone. To play this game just copy the link (https://mtvrs.io/DarkseagreenEvenXanthareel) or scan the QR code from (https://studio.gometa.io/discover/me/8f0a1915-c82e-435b-8c7a-6ed938b9a7f9).
+This game is created in (metaverse studio.gometa.io + koji) and in order to play this game you have to download the Metaverse - Augmented Reality app in your phone. To play this game just copy the link (https://mtvrs.io/DarkseagreenEvenXanthareel) or scan the QR code from (https://studio.gometa.io/discover/me/8f0a1915-c82e-435b-8c7a-6ed938b9a7f9).
 
 Koji is a platform that works directly inside metaverse experiences where you can create anything. So login to (withkoji.com) . So now lets see how koji works inside metaverse studio.
 
